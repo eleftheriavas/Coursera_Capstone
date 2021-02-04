@@ -1,4 +1,4 @@
-### THE BATTLE OF THE NEGHIBORHOODS OF TORONTO
+### THE BATTLE OF THE NEIGHBORHOODS OF TORONTO
 
 ## Where to start a new gym business in the city of Toronto
 
